@@ -1,1 +1,1 @@
-# HYInsta
+# MGINSTA
